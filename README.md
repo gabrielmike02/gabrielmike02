@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gabrielmike02
 - 👀 I’m interested in crypto currency.
-- 🌱 I’m currently learning what all this gibberish and chicken strat hes are.
+- 🌱 I’m currently learning what all this gibberish and chicken scratch these are.
 - 💞️ I’m looking to collaborate on learning more, keeping this organism we call Defi or web3 Alive.
 - 📫 How to reach me. I guess find me in the wallet.
 
